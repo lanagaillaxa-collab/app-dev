@@ -19,3 +19,6 @@
 | Vera Farmiga | Lorraine Warren | A gifted clairvoyant and trance medium, Lorraine was the sensitive soul who perceived the spiritual forces they confronted. |
 
 ## My Rating: ⭐⭐⭐⭐⭐ 5/5 Stars
+
+### Watch on:
+[![HBO Max](https://img.shields.io/badge/HBO_Max-ffffff?style=for-the-badge&logo=hbo&logoColor=black)](https://www.hbomax.com/)
