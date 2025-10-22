@@ -1,4 +1,4 @@
-# My Favorite Series: **Conjuring**
+# My Favorite Movie Series: **Conjuring**
 
 > "The devil exists. God exists. And for us, as people, our very destiny hinges upon which one we elect to follow." 
 >  -Ed Warren
