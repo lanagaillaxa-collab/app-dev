@@ -18,4 +18,4 @@
 | Patrick Wilson | Ed Warren | A methodical demonologist and former marine, Ed was the pragmatic investigator who grounded their work in tangible evidence. |
 | Vera Farmiga | Lorraine Warren | A gifted clairvoyant and trance medium, Lorraine was the sensitive soul who perceived the spiritual forces they confronted. |
 
-## My Rating: 5/5 Stars
+## My Rating: ⭐⭐⭐⭐⭐ 5/5 Stars
